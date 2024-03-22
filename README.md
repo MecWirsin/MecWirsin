@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Instagram: neto_will // Linkedin: https://www.linkedin.com/in/wilson-sousa-377802232/
 - 😄 Pronouns: He/its
-- ⚡ Fun fact: I love cats, interested in programming, i love football, i love music instruments.
+- ⚡ Fun fact: I love cats, I'm interested in programming, I love football and I love musical instruments.
 - 🟡🟢 I'm From Brazil.
 
 <!---
